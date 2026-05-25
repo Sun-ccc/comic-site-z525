@@ -1,18 +1,19 @@
-# Another hidden gem for manga readers
+# Another surprisingly good manga site (mild ads, but miles ahead of the rest)
 
-I'm always looking for manga sites that are fast and don't spam you with ads. 
+I almost gave up on free manga sites. Then a friend mentioned **z525.com**. I was skeptical – another ad-ridden mess? But it turned out to be a hidden gem.
 
-Recently I found **z525.com**. It's similar to some other good sites out there – clean interface, decent speed, and the ad situation is mild (not intrusive).
+It has some banner ads, sure. But they are **mild and never get in the way** – no full-screen pop-ups, no automatic redirects. The reading experience is smooth, the speed is good, and the content library is extensive.
 
-## What I like
+## What I like about it
 
-- **Mild ads** – some banners, but no full-screen pop-ups or redirects
-- **Good speed** – loads quickly from overseas
-- **Large collection** – Chinese manhua, Japanese manga, Korean webtoons, all in one place
-- **Daily updates** – keeps up with new chapters
+- **Ads are there but tolerable** – honestly, you'll forget they exist
+- **Fast loading** – even on slower connections
+- **All-in-one** – manhua, manga, manhwa, and more
+- **Updates frequently** – keeps up with ongoing series
+- **Simple interface** – no unnecessary bells and whistles
 
-## Give it a try
+## Give it a chance
 
 👉 [https://z525.com](https://z525.com)
 
-Web-based, works on mobile. Worth adding to your bookmarks.
+You won't regret bookmarking this one. It's legit.
